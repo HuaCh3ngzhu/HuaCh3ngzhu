@@ -9,9 +9,9 @@ __
 
 __
 
-ᴄᴀɴ'ᴛ ꜰᴏʀɢᴇᴛ ᴛᴏʀᴅ!
+ᴄᴀɴ'ᴛ ꜰᴏʀɢᴇᴛ ᴛᴏʀᴅ! (ᴛʜᴇ ᴍɪᴅᴅʟᴇ ɢᴜʏ)
 
 <img width="720" height="931" alt="image" src="https://github.com/user-attachments/assets/15e2f6a6-e045-4a84-bee3-c3ee5d787007" />
 
-(IM CRYING THE QUALITY AND EDDS FACE. But RIP Edward Duncan Ernest Gould...)
+(IM CRYING THE QUALITY AND EDDS FACE.) 
 
