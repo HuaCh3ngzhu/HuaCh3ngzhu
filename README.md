@@ -7,6 +7,6 @@ Progress of Jas 39 gripen:
 <img width="709" height="945" alt="image" src="https://github.com/user-attachments/assets/7bfe8508-8eb8-4f2c-8c6d-c0a539b1645e" />
 
 
-
+(YES i made it myself with Cardboard and glue.)
 
 
