@@ -4,13 +4,17 @@ __________
 Progress of Jas 39 gripen:
 
 
-<img width="709" height="945" alt="image" src="https://github.com/user-attachments/assets/022b372f-2c57-40a6-bc82-d7d26831713f" />
 
 (up)
 
+<img width="709" height="945" alt="image" src="https://github.com/user-attachments/assets/022b372f-2c57-40a6-bc82-d7d26831713f" />
 
 
-https://photos.app.goo.gl/i62cV66YVme4ehnS8
+
+(down)
+
+<img width="709" height="945" alt="image" src="https://github.com/user-attachments/assets/4eaf0ca0-5705-4979-8fc5-d17ebab94e54" />
+
 
 
 (YES i made it myself with Cardboard and glue.)
