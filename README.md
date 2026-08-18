@@ -3,6 +3,8 @@
 __________
 Progress of Jas 39 gripen:
 
+https://photos.app.goo.gl/DRqvrTXh3txKm4916
+
 
 
 
