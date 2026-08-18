@@ -4,7 +4,9 @@ __________
 Progress of Jas 39 gripen:
 
 
-https://photos.app.goo.gl/zT6pMsggMo4esJGz9
+<img width="709" height="945" alt="image" src="https://github.com/user-attachments/assets/022b372f-2c57-40a6-bc82-d7d26831713f" />
+
+(up)
 
 
 
