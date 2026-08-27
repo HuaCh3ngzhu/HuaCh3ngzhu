@@ -2,7 +2,7 @@
 
 <img width="150" height="80" alt="image" src="https://github.com/user-attachments/assets/90f67f70-5a4f-42ec-97a4-f5640a94991e" />
 
-
+"ᴛɪʟʟ ᴀʟʟ ᴀʀᴇ ᴏɴᴇ" - ᴘᴇᴛᴇʀ ᴄᴜʟʟᴇɴ
 
 
 <img src="https://wilardo.crd.co/assets/images/gallery22/92802f21_original.png?v=87117d4a"/>
