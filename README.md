@@ -11,9 +11,9 @@
 <img src="https://wilardo.crd.co/assets/images/gallery22/92802f21_original.png?v=87117d4a"/>
 
 
-<img width="278" height="35" alt="image" src="https://github.com/user-attachments/assets/70b04d23-73c7-46db-bdc5-5a811de31789" />   - Thank you @pt-heavyfictkin !
+<img width="500" height="30" alt="image" src="https://github.com/user-attachments/assets/837c2bf6-5eea-41e2-a6dd-0ec07ba49b83" />   Thank you Ponytowns-rewards, pt-heavyfictkin
 
-<img width="555" height="62" alt="image" src="https://github.com/user-attachments/assets/556788c1-8b6c-4ab3-b332-48414459032d" />   - Thank you @Ponytowns-rewards  !
+
 
 
 ᴄᴜᴅᴅʟᴇ/ᴄᴏᴍꜰ ᴘᴇᴏᴘʟᴇ -> @ᴀɴɢᴇʟꜱᴛʀᴜᴍᴘᴇᴛꜰʟᴏᴡᴇʀ , @ᴍᴏɴꜱɪᴇᴜʀᴀʟꜰʀᴇᴅ , @ᴍᴀꜰɪᴏꜱᴏɪɢ-ᴅᴇʙᴛ + ɢʀᴇᴇɴ ɴᴀᴍᴇꜱ.
