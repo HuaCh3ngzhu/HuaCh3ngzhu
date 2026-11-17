@@ -13,8 +13,12 @@
 <img src="https://wilardo.crd.co/assets/images/gallery22/92802f21_original.png?v=87117d4a"/>
 
 
-<img width="500" height="30" alt="image" src="https://github.com/user-attachments/assets/837c2bf6-5eea-41e2-a6dd-0ec07ba49b83" /> 
 
 
+
+
+
+
+<img width="300" height="200" alt="image" src="https://github.com/user-attachments/assets/e2265035-f541-4649-8a1a-2b6352e82a94" />
 
 
