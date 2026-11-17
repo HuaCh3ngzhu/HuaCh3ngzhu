@@ -4,7 +4,9 @@
 
 
 
-<img width="1000" height="400" alt="Clegan" src="https://github.com/user-attachments/assets/2c99fbe8-7a41-43ae-ac43-df4442403ff2" />
+
+<img width="1000" height="400" alt="e9bc747f16988ab0d8a0a7b38cba470a" src="https://github.com/user-attachments/assets/c74e0ba7-55b0-461a-aa53-69d39efa5f77" />
+
 
 
 
